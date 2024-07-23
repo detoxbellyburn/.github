@@ -65,7 +65,7 @@ Health experts often emphasize the importance of a healthy lifestyle, including 
 
 Detox Belly Burn can be purchased online through the official website and other authorized retailers. To ensure you receive a genuine product, it is recommended to buy directly from the official website.
 
-##[(LIMITED STOCK) Click Here to Buy Detox Belly Burn at a Special Discounted Price Today!](https://atozsupplement.com/detox-belly-burn/}
+## [(LIMITED STOCK) Click Here to Buy Detox Belly Burn at a Special Discounted Price Today!](https://atozsupplement.com/detox-belly-burn/)
 
 ## Conclusion
 
